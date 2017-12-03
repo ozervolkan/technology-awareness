@@ -8,6 +8,6 @@
    - Topluluklar
    - Avantajlar
    - Dezavantajlar
-   - Türklerin ülke sınırlarını başarıları
+   - Türklerin ülke sınırlarını aşan başarıları
 
 > Not : Bu içerik güncellenecektir. Katkı yapmak isteyen arkadaşları bekliyorum.
